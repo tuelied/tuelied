@@ -2,7 +2,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 ==============================================================================================================================
 
 * 🌍  I'm based in Thailand
-* ✉️  Work contact me at
+* ✉️  Work contact me at tuelied.work@gmail.com
 
 ### Skills
 
